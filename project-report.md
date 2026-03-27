@@ -37,5 +37,3 @@ As a result of this research, one habit I will personally change is being more c
 ---
 
 ### Pritam Ghosh 25BAI11306
-
-### Pritam Ghosh 25BAI11306
